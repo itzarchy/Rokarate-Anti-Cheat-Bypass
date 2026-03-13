@@ -1,8 +1,8 @@
 ***1. Execute all the anti cheats.***
 
-***2. run the dex explorer.***
+***2. run dex explorer.***
   
-***3. dupe benchpressclient on PlayerScripts.***
+***3. dupe benchpressclient on PlayerScripts and fuck the game.***
 
 
 ***each dupe = x2 gain.***
