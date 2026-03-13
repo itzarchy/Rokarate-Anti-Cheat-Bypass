@@ -5,6 +5,6 @@
 
 each dupe = x2 gain.
 
-got banned from this shitty game 2 years ago, might as well leak it
+got banned from this shitty game last year, might as well leak it
 
 -- bypassed by Archy
